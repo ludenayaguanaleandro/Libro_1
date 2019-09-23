@@ -1,6 +1,6 @@
 Como ganar amigos e influenciar sobre las personas
 ==================================================
-![](http://www.libreriacuesta.com/content/images/thumbs/0102650_como-ganar-amigos-e-influir-sobrebol_550.jpeg)
+![Portada del libro](http://www.libreriacuesta.com/content/images/thumbs/0102650_como-ganar-amigos-e-influir-sobrebol_550.jpeg)
 # 1) TÉCNICAS FUNDAMENTALES PARA EL TRATO CON PERSONAS
 
 Son nuestras acciones, no nuestras palabras, las que muestran a otras personas lo que pensamos de ellos.Por eso, cuando conocemos a alguien, la manera más fácil de decir “me caes bien y estoy muy contento de haberte conocido" es sonriendo. A los humanos nos ganan de inmediato las personas que nos sonríen.
@@ -10,6 +10,21 @@ Si alguien nos sonríe al conocerlo, es muy poco probable que esa persona nos ca
 Así es que si quieres convertirte en una persona que instantáneamente le agrade a todos, comienza por demostrarle a los demás cuanto disfrutas estar con ellos, ya sea con una sonrisa que es la forma más fácil o de alguna otra manera. Al final del día si estas feliz por ver a alguien, la otra persona igual estará feliz por verte.
 
 Recientemente, varios psicólogos han descubierto un efecto positivo al sonreír excesivamente. Al parecer la conexión entre emociones positivas y sonreír no es unilateral; el sonreír (aun cuando sea de manera forzada) puede conducir a emociones positivas, al igual que emociones positivas pueden conducir a sonreír (involuntariamente). Esto quiere decir que por sonreír, no solo haremos a otras personas más felices, sino también a nosotros mismos.
+
+## 1. Si quieres recoger miel, no des puntapies a la colmena
+> No critique, no condene, ni se queje. - Regla 1
+
+En este primer capítulo nos habla sobre la tolerancia, es decir, debemos comprender y aceptar a las personas como son, ya sea que tengan opinios, ideas o actitutes completamente diferentes a las nuestras, es por ello que juzgarlos o críticarlos por sus actos, no sirve de nada más que perder herir su orgullo y por consecuencia perder la simpatía de aquellas personas.
+
+## 2. El gran secreto para tratar con la gente
+> Demuestre aprecio honrado y sincero. - Regla 2
+
+Unas de las tantas cosas que les gusta a las personas es el de sentirse elogiado, con esto no sólo se consigue un poco de aprecio por esa persona si no que además permite que esa persona haga algo por usted algun día. Y no sólo eso, la mejor forma de tratar con las demás personas es demostrar interes por las mismas pero este debe ser verdadero, sólo si en verdad quieres entablar una amistad con alguien demuestra tu interés caso contrario mejor no lo hagas. Este es uno de los trucos para saber rodearse de personas y formas amistades: interesarse en ellas y ser una persona que los valore no sólo con palabra como un elogio, si no tambien con los actos.
+
+## 3. "Quien puede hacer esto tiene al mundo entero consigo; quien no puede, marcha solo por el camino"
+> Despierte en los demás un deseo vehemente. - Regla 3
+
+El secreto para influir sobre otras personas esta en siempre hablar acerca de los intereses de esas personas, y demostrar como conseguirlo. Es decir, a las personas solamente les importa sus necesidades y como estos lo pueden solucionar, por lo que si hablamos a otra persona de nuestros interes solo conseguiremos agobiarle, al fin y al cabo y como se mencionó anteriormente, simplemente no le interesa; por otro lado si hablamos de lo que él quiere y proponemos una solución a su necesidad o deseo, podremos obtener el interés de esa persona y ganarnos su confianza.
 
 # 2) SEIS MANERAS PARA QUE LE GUSTES A LAS PERSONAS
 
