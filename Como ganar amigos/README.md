@@ -63,3 +63,11 @@ Tomemos a Theodore Roosevelt como ejemplo. Cuando el iba a conocer a alguien por
 Existe un tema en el cual todos están interesados: ellos mismos. Todas la personas sienten que son valiosas e interesantes, y disfrutamos cuando otros nos confirmen esta creencia. Benjamin Disraeli estaba en lo correcto cuando dijo, “Habla con la gente sobre ellos, y escucharan por horas.”
 
 Cuando conozcas a alguien, encuentra algo que realmente admires de ellos y platica sobre eso. No importa quien sea la persona que estés conociendo, siempre puedes encontrar una cosa que admires de ellos. Dale Carnegie, por ejemplo, una vez quería hacerle el día a un empleado de servicio que parecía aburrido, así es que le dijo, “Desearía tener tu cabello.”
+
+# Conclusión
+
+La conclusión de este libro es la manera en que muchas veces hacemos prioridad nuestras necesidades y no las de los demás, incluso cuando pedimos un favor no pensamos en la situación por la que la persona está pasando y muchas veces está es la principal causa de que no nos ayuden.
+
+También nos da muchas reglas más para "empatizar" con la gente esos conceptos constituyen, probablemente, las reglas más importante del mundo. 
+
+*Haz al prójimo lo que quieras que el prójimo te haga a ti.*
