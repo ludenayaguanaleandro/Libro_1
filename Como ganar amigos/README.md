@@ -39,7 +39,10 @@ Abraham Lincoln aprendió esta lección también. El acostumbraba a criticar pú
 Criticar a alguien es fácil, pero ponerte en los zapatos de los demás, entenderlos y perdonarlos por sus errores o imperfecciones requiere humildad, grandeza y un gran carácter. Si quieres caerle bien a las personas, intenta entender que los mueve, aceptar sus errores, y ponte una regla de nunca criticar a alguien abiertamente, ya que esta critica solo te afectara.
 
 “Cualquier tonto puede criticar, quejarse, o condenar – y la mayoría de los tontos lo hacen. Pero toma carácter y auto control el comprender y perdonar».
-
+## Regla 1 INTERÉSATE SINCERAMENTE POR LOS DEMÁS
+lo que nosotros hacemos vale mas que lo que decimos que por esa razon hay que siempre sonreir para que las demas personas sientan que que nos agrada estar con ellas ya que la sonria que expresamos puede ser contagiosa y puedes hacer que la persona que se sienta mal empiece a sonreir.
+## Regla 2 SONRÍE
+Jim siempre desia que las persona dan su nombre es para lo recuer por eso el pudo recordar 50.00 mombres diferentes asi como algunos detalles que las personas les decian de su vidas. El decia que al recordar el nombre de una persona le dabamos un elogio sencillo y al la ves muy poderoso.
 # 3) LOGRE QUE LOS DEMÁS PIENSEN COMO USTED
 
 Para lograr que alguien te haga un favor, debes asegurarte que realmente quieran hacerlo. ¿Como es posible esto?. Debes motivar a la otra persona con una simple recompensa: tu sincera aprecio por ellos. Uno de los motivadores más grandes en el comportamiento humano es el deseo a ser valorado por otros. A TODOS nos gusta el ser reconocidos y el escuchar que estamos haciendo un buen trabajo.
@@ -63,3 +66,4 @@ Tomemos a Theodore Roosevelt como ejemplo. Cuando el iba a conocer a alguien por
 Existe un tema en el cual todos están interesados: ellos mismos. Todas la personas sienten que son valiosas e interesantes, y disfrutamos cuando otros nos confirmen esta creencia. Benjamin Disraeli estaba en lo correcto cuando dijo, “Habla con la gente sobre ellos, y escucharan por horas.”
 
 Cuando conozcas a alguien, encuentra algo que realmente admires de ellos y platica sobre eso. No importa quien sea la persona que estés conociendo, siempre puedes encontrar una cosa que admires de ellos. Dale Carnegie, por ejemplo, una vez quería hacerle el día a un empleado de servicio que parecía aburrido, así es que le dijo, “Desearía tener tu cabello.”
+
