@@ -43,6 +43,35 @@ Criticar a alguien es fácil, pero ponerte en los zapatos de los demás, entende
 lo que nosotros hacemos vale mas que lo que decimos que por esa razón hay que siempre sonreír para que las demás personas sientan que nos agrada estar con ellas ya que la sonrisa que expresamos puede ser contagiosa y puedes hacer que la persona que se sienta mal empiece a sonreir.
 * **Regla 2 SONRÍE**
 Jim siempre decía que las persona dan su nombre es para lo recuerden, por eso el pudo recordar 50.00 nombres diferentes así como algunos detalles que las personas les decían de su vidas. El decía que al recordar el nombre de una persona le dabamos un elogio sencillo y al la ves muy poderoso.
+
+* **Regla 3 RECUERDA QUE PARA TODA PERSONA, SU NOMBRE ES EL SONIDO MÁS DULCE E IMPORTANTE EN CUALQUIER IDIOMA.**
+
+– Una manera fácil de Convertirste en un Buen Conversador.
+¿Cómo convertirse en un conversador inteligente? ¿Cuál es el misterio, el secreto de una feliz entrevista de negocios? Pues muy sencillo: prestar una atención exclusiva a la persona que habla. No hay nada más halagador que eso, según Charles W. Eliot (que fue presidente de Harvard).
+
+Aún el crítico más violento, se suavizará habitualmente en presencia de un oyente que muestre paciencia y simpatía; que guarde silencio aún cuando el otro entre en cólera y suelte toda la ira que lleva dentro.
+
+De manera que, si aspiras a ser un buen conversador, sé un oyente atento. Para ser interesante, hay primero que interesarse por los demás. ¿Cómo puedes empezar? Formula preguntas a tu interlocutor que sabes que le agradará contestarte, invítale a hablar de sí mismo y de sus experiencias. La próxima vez que inicies una conversación piensa que la persona con la que hablas está cien mil veces más interesada en ella misma que en ti.
+
+* **Regla 4 SÉ UN BUEN OYENTE. ANIMA A LOS DEMÁS A QUE HABLEN DE SÍ MISMOS.**
+
+– Cómo interesar a la gente.
+“El mejor camino para llegar al corazón de una persona es hablarle de lo que él o ella más valoran”.
+Hablar en términos de los intereses de la otra persona es beneficioso para ambas partes. Si consigues descubrir las pasiones e intereses de la otra persona, la conversación será muy fluida y satisfactoria, tan sólo tendrás que escuchar con interés y la otra persona recompensará con creces.
+
+* **Regla 5 HABLA PENSANDO EN LO QUE INTERESA A LOS DEMÁS**
+
+– Cómo Gustarle a la gente al Instante.
+Existe una ley inquebrantable que no sólo ayuda a hacer amigos, sino que además puede hacernos felices haciendo felices a los demás: “Trata siempre de que la otra persona se sienta importante”.
+
+Y es que para que la vida de otra persona cambie totalmente, puede bastar con que alguien la haga sentir importante. El respeto por los demás, la cordialidad, el aprecio sincero tiene un efecto mágico en las relaciones interpersonales y nos brinda algo sublime aunque casi imperceptible: la sensación de haber hecho algo por esa persona sin esperar nada a cambio.
+¿De qué estamos hablando? Muy sencillo. De darle las gracias a la camarera cuando nos trae la comida, de elogiar la sonrisa del funcionario de correos cuando nos entrega una carta, etc. Frases tan insignificantes y a la vez poderosas como:
+“Lamento molestarlo..”, “Tendría usted la amabilidad de…”, ” Por favor… Gracias…”
+
+* **Regla 6 HAZ QUE LA OTRA PERSONA SE SIENTA IMPORTANTE, Y HAZLO SINCERAMENTE.**
+
+Hablarle al otro de él mismo, es música para los oídos de cualquiera. Si quieres que el otro se sienta cómodo en tu compañía y además te escuche, muestra un aprecio sincero por esa persona y recuerdale lo que te gusta de él.
+
 ## 3) LOGRE QUE LOS DEMÁS PIENSEN COMO USTED
 
 Para lograr que alguien te haga un favor, debes asegurarte que realmente quieran hacerlo. ¿Como es posible esto?. Debes motivar a la otra persona con una simple recompensa: tu sincera aprecio por ellos. Uno de los motivadores más grandes en el comportamiento humano es el deseo a ser valorado por otros. A TODOS nos gusta el ser reconocidos y el escuchar que estamos haciendo un buen trabajo.
@@ -74,8 +103,13 @@ Para evitar esas situaciones en mejor admitir nuestro error desde un inicio, par
 
 ## Conclusión
 
-La conclusión de este libro es la manera en que muchas veces hacemos prioridad nuestras necesidades y no las de los demás, incluso cuando pedimos un favor no pensamos en la situación por la que la persona está pasando y muchas veces está es la principal causa de que no nos ayuden.
+1. Las reglas que aparecen aquí no son más que derivaciones de este precepto. El testimonio de infinidad de personas, en diversas épocas y lugares, constituye una muestra fehaciente del poder que tiene comprender al otro y comportarse frente a él de la misma forma en que uno quisiera ser tratado, si se encontrara en la misma situación. Si se quiere ser capitán y dirigir la nave de los negocios, la personalidad, el tacto y la facilidad de palabra serán mucho más útiles que el conocimiento de los verbos latinos o que un diploma de Harvard.
+
+2. La conclusión de este libro es la manera en que muchas veces hacemos prioridad nuestras necesidades y no las de los demás, incluso cuando pedimos un favor no pensamos en la situación por la que la persona está pasando y muchas veces está es la principal causa de que no nos ayuden.
+
 
 También nos da muchas reglas más para "empatizar" con la gente esos conceptos constituyen, probablemente, las reglas más importante del mundo. 
 
 *Haz al prójimo lo que quieras que el prójimo te haga a ti.*
+
+![Portada del libro](https://www.lifeder.com/wp-content/uploads/2018/09/como-ganar-amigos-e-influir-sobre-las-personas-lifeder.jpg)
